@@ -1,0 +1,16 @@
+# Inspiracje Współczesny Scholastyk
+
+## Mercier, Cardinal. A Manual of Modern Scholastic Philosophy ( Volume 1 )
+
+Philosophy does not profess to be a particularized science, with a place alongside other such sciences and a restricted domain of its own for investigation ; it comes after the particular sciences and ranks above them, dealing in an ultimate fashion with their respective objects, inquiring into their connexions and the relations of these connexions, until finally it arrives at notions so simple that they defy analysis and so general that there is no limit to their application.
+
+Mercier, Cardinal. A Manual of Modern Scholastic Philosophy ( Volume 1 ) (p. 40). London : Kegan Paul, Trench, Trubner & Co. Kindle Edition. 
+
+Filozofia nie aspiruje do bycia szczegółową nauką, umieszczoną pomiędzy innymi podobnymi naukami z ograniczoną domeną badań. Ona[filozofia] stoi poza szczegółowymi naukami, powyżej nich, odnosi się w ostateczny sposób do poszczególnych obiektów, badając ich połączenia i relacje tych połączeń dopóty, aż osiągnie pojęcia tak proste, że opierają się dalszej analizie i tak ogólne, że nie ma ograniczeń w ich zastosowaniu.
+
+> Ona[filozofia] stoi poza szczegółowymi naukami, opisuje poszczególny obiekty ich badań w ostateczny, badając ich połączenia, relacje tych połączeń, dopóty, aż osiągnie pojęcia tak proste, że opierają się dalszej analizie i tak ogólne, że nie ma ograniczeń w ich zastosowaniu.
+
+> Ona[filozofia] opisuje obiekty badań nauk szczególnych w sposób ostateczny. Bada ich połączenia; relacje tych połączeń  dopóty, aż osiągnie pojęcia **tak proste, że opierają się dalszej analizie i tak ogólne, że nie ma ograniczeń w ich zastosowaniu**.
+>
+> 
+
